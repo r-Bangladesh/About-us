@@ -1,2 +1,3 @@
-# r-bangladesh
-Readme 
+# r/Bangladesh, subreddit and discord server has been with the community as long as it has been formed on June 17th, 2008, and April 1st, 2022 respectively And we don't have any intention to change that. Since its creation, The purpose of the r/Bangladesh server and subreddit is to facilitate discussion and interaction. You can take in the wisdom of the community or just sit back and relax. The purpose is to forge a closer bond among all participants.
+
+It’s a Bangladeshi Discord-partnered :partner: community where people with all kinds of experience and knowledge can come together to learn from each other. It also provides a mode of connection more familiar to the up-and-coming generation to build a stronger sense of unity amongst its members and countrymen. While the majority of the members are of Bangladeshi origin, this community welcomes anyone who might be interested in getting to know more about Bangladesh and its people.
